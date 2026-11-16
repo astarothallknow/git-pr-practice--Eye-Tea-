@@ -1,2 +1,2 @@
 # Contributors
-- Shreya (@shreyarane834): I love digital art!
+- Shreya (@shreyarane834): I love art in general!🎨
