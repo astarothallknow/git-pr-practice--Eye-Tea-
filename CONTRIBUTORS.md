@@ -1,2 +1,2 @@
 # Contributors
-- <Misbah> (@MisbhaMDH): <I know nothing>
+- <Misbah> (@MisbhaMDH): <I know nothing, thanks to Fayzan>
