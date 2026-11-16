@@ -1,1 +1,2 @@
 # Contributors
+simple and funny
