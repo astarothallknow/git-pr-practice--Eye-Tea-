@@ -1,2 +1,2 @@
 # Contributors
-simple and funny
+simple and funny yahoo
